@@ -1,2 +1,2 @@
 # Script-
-Memek
+aku anak baik
